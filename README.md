@@ -1,4 +1,4 @@
-hii you may see me around the bakery, with friends or wondering around. I'm okay with interactions but I may come of as awkward at first, I tend to be hypocritical about strangers but C+H and Inspiration are completely fine!
+hii you may see me around the bakery, with friends or wondering around. I'm a college student in UK, I'm okay with interactions but I may come of as awkward at first, I tend to be hypocritical about strangers but C+H and Inspiration are completely fine!
 
 
 my main interests are JJBA, Mighty Nein/Critical Role, D&D, music, art, and ocs. I'm a college student in the UK, I know some french but very limited. 
